@@ -3,4 +3,4 @@ My first repository
 
 Heeeeellllloooooo!
 
-Jade here, I hate journalism but I have to take their course for another years, just waiting the covid to go away. Crazy world! Unbelivable!
+Jade here, I hate journalism but I have to take their course for another year.I will fit myself in a animation school right away after these covid thing is done!. Crazy world! Unbelivable!
